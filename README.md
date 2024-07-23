@@ -1,1 +1,1 @@
-just to record my study
+Just to record my study.
